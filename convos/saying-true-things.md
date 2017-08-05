@@ -1,4 +1,4 @@
-> "I feel rude if I don't have dinner with him," she said because it was true. It was also true of course that she wanted to have dinner with him.
+> "But I feel rude if I don't have dinner with him," she said because it was true. It was also true of course that she wanted to have dinner with him.
 >
 > "I understand," he said because it was true. But it was also true that he wished he didn't.
 >
