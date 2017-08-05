@@ -1,6 +1,6 @@
 # Mic Drops
 
-Chapter endings, speech endings, etc. Remember that these aren't necessarily our own views on things: they could be a character's, whose views we disagree with. Anyway, they just have to be decent ending sentences.
+Chapter endings, speech endings, etc. Remember that these aren't necessarily our own views on things: they could be a character's whose views we disagree with. Anyway, they just have to be decent ending sentences.
 
 ---
 
