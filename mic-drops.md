@@ -4,4 +4,4 @@ Chapter endings, speech endings, etc. Remember that these aren't necessarily our
 
 ---
 
-> [...] The dam broke, flooding the long-arid lands [?syn:surface] of his face. [...] He saw the desert of the disaffected, he saw the ocean of lamenters [reword], and in between, a blur of truths half-seen. He felt himself at a precipice, a slow chill transversing his shoulders, and for one passing moment he understood: one must wither or one must drown, to glimpse anything—anything as it really was.
+> [...] The dam broke, flooding the long-arid lands [?syn:surface] of his face. [...] He saw the desert of the disaffected, he saw the ocean of lamenters [reword], and in between, a blur of truths half-seen. He felt himself at a precipice, a slow chill traversing shoulder to shoulder, and for one passing moment he understood: one had to wither or one had to drown, to glimpse anything—anything as it really was.
